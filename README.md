@@ -1,2 +1,0 @@
-# celestro-AI
-IT IS MADE BY AN STUDENT FROM INIDA
